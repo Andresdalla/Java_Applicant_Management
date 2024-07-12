@@ -1,1 +1,1 @@
-https://github.com/Andresdalla/Java_Applicant_Management/issues/1#issue-2406177674
+https://github.com/user-attachments/assets/af3ded05-cf0e-438b-9b26-9d2d8b21d270
